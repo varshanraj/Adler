@@ -1,4 +1,5 @@
 # Adler
+
 Dear Hiring Manager,	
         I am writing to express my interest in joining Adler, a company whose innovative approach and commitment to excellence have greatly impressed me. I am particularly drawn to Adler because of its dedication to fostering a collaborative and dynamic work environment where creativity and strategic thinking are highly valued. Adler’s reputation for pushing boundaries and setting industry standards resonates with my own professional aspirations and personal values.
 
